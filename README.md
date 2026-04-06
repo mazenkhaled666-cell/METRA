@@ -1,2 +1,2 @@
-# METRA
+# metra-v1
 LOCAL CLOTHING BRAND 
