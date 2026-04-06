@@ -1,2 +1,2 @@
 # metra-v1
-LOCAL CLOTHING BRAND 
+METRA - The New Standard of Local Essentials
